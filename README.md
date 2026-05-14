@@ -1,1 +1,1 @@
-# index.html
+trail etiquette article
